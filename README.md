@@ -1,1 +1,1 @@
-Resume (Last updated on 22.07.2021)
+Resume (Last updated on 24.07.2021)
